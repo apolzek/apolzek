@@ -1,3 +1,3 @@
-aplz饿k#3359
+discord: aplz饿k#3359
 
-@apolzek
+telegram: @apolzek
